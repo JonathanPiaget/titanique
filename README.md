@@ -1,2 +1,2 @@
 # titanique
-please do not take it seriously
+pwease do not take it seriously
